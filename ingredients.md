@@ -7,4 +7,4 @@ olive oil
 super hot peppers
 red hot chillis
 onions
-fish
+chicken
